@@ -1,4 +1,4 @@
-# 
+# Advanced ProtonVPN presets for Mac OS | Smart ProtonVPN presets for PC Windows. Featuring automatic updates and secure notes — optimized for maximum performance on every platform.
 
 
 
